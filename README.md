@@ -1,1 +1,0 @@
-# krtayu.github.io
